@@ -1,4 +1,4 @@
 jhaKHKHKHDSAF
 JAKSJDLOFJAL
-AKLÑDFVADmas lineas
-\nmas lineas
+AKLÃ‘DFVADmas lineas
+mas lineas
